@@ -1,2 +1,2 @@
-## 150 Fast prompts OpenAi 👑
+## 150 Fast prompts OpenAi 👑 
 
